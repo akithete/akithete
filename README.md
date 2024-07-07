@@ -1,3 +1,6 @@
+
+<h1>pls see <a href="https://makkiatoh.straw.page/"> straw page (recc) </a> or <a href="https://www.patreon.com/ptastrlkii/about"> patreon!!</a></h1>
+
 hello :> 
 
 <br> astra / maki 
@@ -23,3 +26,5 @@ hello :>
 ✧ ⋆    . ┊ .  ✱˚ ⁭ ⁭ ⁭.
 
 ┊͙ ˘͈ᵕ˘͈  i love me some... hart
+
+
